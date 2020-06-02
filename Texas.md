@@ -7,12 +7,13 @@ A group of protesters waving signs in front of a group of police officers was su
 
 * https://gfycat.com/tautimaginativedore
 
-### Police use tear gas & rubber bullets on protesters | May 30th @ ~3pm
+### Police use tear gas & rubber bullets on protesters | May 30th @ ~3pm, ~5pm
 
 Protesters and Austin police squared off at the protest on I-35. Officers were seen pointing shotguns at the crowd and shooting a protester point-blank multiple times with what appeared to be either rubber bullets or bean bag shells. Tear gas was later deployed on the crowd.
 
 **Links**
 
+* https://twitter.com/DaddyStonks/status/1266863435163328512
 * https://twitter.com/highsettler/status/1266876480929349633
 * https://imgur.com/gallery/VKuIIvu
 * https://gfycat.com/weirdthankfulgnatcatcher
